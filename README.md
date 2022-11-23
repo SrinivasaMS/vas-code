@@ -3,4 +3,5 @@ lol me
 
 
 
-lal we
+
+i just typed in terminal lol
